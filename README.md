@@ -1,3 +1,3 @@
-Nama : 
+Nama : A. Ais Prayogi
 
-NIM  :
+NIM  : D100000
